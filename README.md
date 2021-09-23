@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **tadeu.raphael99@gmail.com | tadeu.raphael99@pm.me**
 
-- 📄 Know about my experiences [https://fatecspgov-my.sharepoint.com/:b:/r/personal/tadeu_franca_fatec_sp_gov_br/Documents/Curr%C3%ADculo%20-%20Tadeu%20Raphael.pdf?csf=1&web=1&e=h5F379](https://fatecspgov-my.sharepoint.com/:b:/r/personal/tadeu_franca_fatec_sp_gov_br/Documents/Curr%C3%ADculo%20-%20Tadeu%20Raphael.pdf?csf=1&web=1&e=h5F379)
+- 📄 Know about my experiences [Curriculum](https://fatecspgov-my.sharepoint.com/:b:/r/personal/tadeu_franca_fatec_sp_gov_br/Documents/Curr%C3%ADculo%20-%20Tadeu%20Raphael.pdf?csf=1&web=1&e=h5F379)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
