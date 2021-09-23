@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Everything I need to become a Full Stack**
 
-- 📝 I regularly write articles on [tadeuraphael.com](tadeuraphael.com)
+- 📝 I regularly write articles on [tadeuraphael.com](https://tadeuraphael.com/)
 
 - 💬 Ask me about **Anything**
 
